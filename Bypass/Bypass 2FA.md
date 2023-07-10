@@ -1,4 +1,4 @@
-# Bypass Two-Factor Authentication
+[# Bypass Two-Factor Authentication
 
 1. Response manipulation
 
@@ -92,4 +92,58 @@ code=null
 
 ## References
 * [Harsh Bothra](https://twitter.com/harshbothra_)
-* Other writeup
+* Other writeup](https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFMhttps://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFMhttps://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFMhttps://t.me/VolVeRFM)https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFMhttps://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFMhttps://t.me/VolVeRFM
+
+https://t.me/VolVeRFM
+
+https://t.me/VolVeRFMhttps://t.me/VolVeRFM
